@@ -1,2 +1,2 @@
 # Clasedediego
-aprendiendo con Diego
+aprendiendo con Irene
